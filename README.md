@@ -1,1 +1,3 @@
-# LOL
+# About me
+LEAVE ME ALONE 
+I AM SICK OF THIS CLASS
